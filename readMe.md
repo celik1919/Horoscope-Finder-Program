@@ -1,23 +1,23 @@
-Koç Burcu : 21 Mart - 20 Nisan
+Aries : March 21 - April 20
 
-Boğa Burcu : 21 Nisan - 21 Mayıs
+Taurus : April 21 - May 21
 
-İkizler Burcu : 22 Mayıs - 22 Haziran
+Gemini : May 22 - June 22
 
-Yengeç Burcu : 23 Haziran - 22 Temmuz
+Cancer : June 23 - July 22
 
-Aslan Burcu : 23 Temmuz - 22 Ağustos
+Leo : July 23 - August 22
 
-Başak Burcu : 23 Ağustos - 22 Eylül
+Virgo : August 23 - September 22
 
-Terazi Burcu : 23 Eylül - 22 Ekim
+Libra : September 23 - October 22
 
-Akrep Burcu : 23 Ekim - 21 Kasım
+Scorpio : October 23 - November 21
 
-Yay Burcu : 22 Kasım - 21 Aralık
+Sagittarius : November 22 - December 21
 
-Oğlak Burcu : 22 Aralık - 21 Ocak
+Capricorn : December 22 - January 21
 
-Kova Burcu : 22 Ocak - 19 Şubat
+Aquarius : January 22 - February 19
 
-Balık Burcu : 20 Şubat - 20 Mart
+Pisces : February 20 - March 20
